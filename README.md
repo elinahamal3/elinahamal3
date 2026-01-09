@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **elinahamal3@gmail.com**
 
-- ⚡ Fun fact **I trust astrology more than my own decisions sometimes**
+- ⚡ Fun fact **I trust astrology more than my own decisions more often**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
